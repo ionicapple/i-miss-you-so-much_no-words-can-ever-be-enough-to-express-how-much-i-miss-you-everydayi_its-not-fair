@@ -26,3 +26,5 @@ im going to reiterate this again, please do NOT contact me in anyway, my SIL is 
 you're just messing around with as many women as you can.
 
 you're just not a serious person and i cannot stand that and i will never put up with that.
+
+i realized this as i was recording the voicenote over the weekend, i thought, i dont really want to talk to you, you're such a mean person ... so i finally understood why it never worked out.
