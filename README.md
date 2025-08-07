@@ -28,3 +28,5 @@ you're just messing around with as many women as you can.
 you're just not a serious person and i cannot stand that and i will never put up with that.
 
 i realized this as i was recording the voicenote over the weekend, i thought, i dont really want to talk to you, you're such a mean person ... so i finally understood why it never worked out.
+
+im not for putting other women down but ill make a small exception to make a quick point. go to your fking wife if you want someone to make you laugh, dont come to me, you chose her so proudly right over me? so go to her, fk off. is she just not funny, and thats why you're always here? hmmm ... theres nothing you can do for me at this point (or ever actually) but waste my time even more.
