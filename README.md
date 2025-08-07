@@ -30,3 +30,9 @@ you're just not a serious person and i cannot stand that and i will never put up
 i realized this as i was recording the voicenote over the weekend, i thought, i dont really want to talk to you, you're such a mean person ... so i finally understood why it never worked out.
 
 im not for putting other women down but ill make a small exception to make a quick point. go to your fking wife if you want someone to make you laugh, dont come to me, you chose her so proudly right over me? so go to her, fk off. is she just not funny, and thats why you're always here? hmmm ... theres nothing you can do for me at this point (or ever actually) but waste my time even more.
+
+my intuition says that you most likely met her on the internet and me, the person who fking drove from philly the night before, you wanted to fk around with, you could just never accept or believe that something good could happen to you with me -- so not only are you a cruel person, but you're also pretty dumb and you do dumb things. you do NOT get to end up with me in the end thats just not whats meant to be, i get that now ... i see it now why it never worked out. once i cant stand someone, theyre dead to me and i cannot stand you.
+
+oh and i get phone numbers all the time, so that wasnt a big deal to me.
+
+thats all from me
