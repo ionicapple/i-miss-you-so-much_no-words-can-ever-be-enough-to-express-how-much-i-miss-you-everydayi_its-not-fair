@@ -75,3 +75,5 @@ you want this? figure your shit out now ... do not underestimate me im a very se
 oh and i can be as mean as i want to you, bc you fwded my emails to penn of all places, that is some fked up shit, you are the meanest person ever that could ever exist
 
 you're turkish and youre going to tell me what to do? HONEY i am a pakistani WOMAN have you MET US do you know what youre signing up for
+
+oh and i like to look put together when i leave the house, so if youre going anywhere with me, 1. you have to go to the barbershop regularly 2. i dont like tshirts + jeans -- but im going to dress you up, im going to give you a new wardrobe, what are you doing with your life im so confused
