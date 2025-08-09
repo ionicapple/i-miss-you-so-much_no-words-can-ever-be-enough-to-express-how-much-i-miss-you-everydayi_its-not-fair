@@ -73,3 +73,5 @@ IM PISSED
 you want this? figure your shit out now ... do not underestimate me im a very serious person. the older i get the more i realize that its very important to live life seriously there is no other way, i have fun but im strict and im a serious person
 
 oh and i can be as mean as i want to you, bc you fwded my emails to penn of all places, that is some fked up shit, you are the meanest person ever that could ever exist
+
+you're turkish and youre going to tell me what to do? HONEY i am a pakistani WOMAN have you MET US do you know what youre signing up for
