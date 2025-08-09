@@ -59,11 +59,15 @@ https://minimalcompany.com/ something like this, i know there are others, all yo
 oh i can make you laugh, but if you miss any one of your five daily prayers, youre sleeping in the living room until you make it up. drinking/drugs, its over on the first attempt, i will not put up with it AT ALL, not even a sip.
 
 > lie
+
 you lie to me about anything, i am from nj and im pakistani, its like the perfect storm of anger when it comes out which it rarely does bc im mostly a chill person. i will find out if you're lying TO ME and it'll be absolutely over for you. i dont lie to people.
 
 if you want to hide anything from me, i swear i will find out, i always find out.
 
 > potential wife # 3
+
 nooo ... it ENDS with me and that's all im going to say about that
 
 IM PISSED
+
+you want this? figure your shit out now ... do not underestimate me im a very serious person. the older i get the more i realize that its very important to live life seriously there is no other way, i have fun but im strict and im a serious person
