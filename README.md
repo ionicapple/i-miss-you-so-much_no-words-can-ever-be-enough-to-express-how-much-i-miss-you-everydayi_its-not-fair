@@ -64,7 +64,7 @@ you lie to me about anything, i am from nj and im pakistani, its like the perfec
 
 if you want to hide anything from me, i swear i will find out, i always find out.
 
-> potential wife # 3
+> potential wife # 3 https://www.youtube.com/watch?v=MJEAGd1bQuc there will not be wife # 3 for you i am so fking serious
 
 nooo ... it ENDS with me and that's all im going to say about that
 
