@@ -50,6 +50,10 @@ oh, you have NEVER seen attitude like mine ... arrogance ... you have never seen
 
 with me, you have lost all privileges to your PHONE (which is an android), honey, im going to get you a phone where all you can do is take calls, send/recieve work emails and that's IT. everything you do, will be monitored by me 24/7, even when you SLEEP. eveywhere you go, anybody you talk to, im going to know EVERYTHING, every single thing. you will be monitored by people you dont even know about, at the least being my family. thats what youre signing up for. any new friend you want to make, get approved by me, you dont get to hang around with trash people. you will be in absolute complete surveillance by me.
 
+> new phone for you
+
+https://minimalcompany.com/ something like this, i know there are others, all you will be able to do is: make calls, work emails, read books, listen to podcasts, call an uber and thats IT, that's all you need
+
 > laugh
 
 oh i can make you laugh, but if you miss any one of your five daily prayers, youre sleeping in the living room until you make it up. drinking/drugs, its over on the first attempt, i will not put up with it AT ALL, not even a sip.
@@ -58,5 +62,8 @@ oh i can make you laugh, but if you miss any one of your five daily prayers, you
 you lie to me about anything, i am from nj and im pakistani, its like the perfect storm of anger when it comes out which it rarely does bc im mostly a chill person. i will find out if you're lying TO ME and it'll be absolutely over for you. i dont lie to people.
 
 if you want to hide anything from me, i swear i will find out, i always find out.
+
+> potential wife # 3
+nooo ... it ENDS with me and that's all im going to say about that
 
 IM PISSED
