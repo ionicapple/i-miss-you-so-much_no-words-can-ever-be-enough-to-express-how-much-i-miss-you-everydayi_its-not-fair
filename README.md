@@ -36,3 +36,27 @@ my intuition says that you most likely met her on the internet and me, the perso
 oh and i get phone numbers all the time, so that wasnt a big deal to me.
 
 thats all from me
+
+
+im not talking to u bc ur married and i need to figure out what im doing with my life talking and sending hrs long voice notes to a married man that also one that didnt choose me.
+
+but i wanted to add more information to some things
+
+> attitude on the phone
+
+oh, you have NEVER seen attitude like mine ... arrogance ... you have never seen a more arrogent person than me, you have met your fking match with me ... im a connoisseur of arrogent people in academia, i know i can outdo them. moreover, i am such a competitive person thats how my parents raised me to be, to be the absolute best in whatever im doing
+
+> cheating
+
+with me, you have lost all privileges to your PHONE (which is an android), honey, im going to get you a phone where all you can do is take calls, send/recieve work emails and that's IT. everything you do, will be monitored by me 24/7, even when you SLEEP. eveywhere you go, anybody you talk to, im going to know EVERYTHING, every single thing. you will be monitored by people you dont even know about, at the least being my family. thats what youre signing up for. any new friend you want to make, get approved by me, you dont get to hang around with trash people. you will be in absolute complete surveillance by me.
+
+> laugh
+
+oh i can make you laugh, but if you miss any one of your five daily prayers, youre sleeping in the living room until you make it up. drinking/drugs, its over on the first attempt, i will not put up with it AT ALL, not even a sip.
+
+> lie
+you lie to me about anything, i am from nj and im pakistani, its like the perfect storm of anger when it comes out which it rarely does bc im mostly a chill person. i will find out if you're lying TO ME and it'll be absolutely over for you. i dont lie to people.
+
+if you want to hide anything from me, i swear i will find out, i always find out.
+
+IM PISSED
