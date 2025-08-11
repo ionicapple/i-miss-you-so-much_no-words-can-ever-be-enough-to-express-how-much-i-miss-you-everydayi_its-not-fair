@@ -79,3 +79,5 @@ you're turkish and youre going to tell me what to do? HONEY i am a pakistani WOM
 oh and i like to look put together when i leave the house, so if youre going anywhere with me, 1. you have to go to the barbershop regularly 2. i dont like tshirts + jeans -- but im going to dress you up, im going to give you a new wardrobe, what are you doing with your life im so confused
 
 going to log into work a little later, submit some jobs, hopefully the job queue is less today
+
+going to log in to work tomorrow extra early after fajr to submit my jobs in the server, so gonna sleep early
