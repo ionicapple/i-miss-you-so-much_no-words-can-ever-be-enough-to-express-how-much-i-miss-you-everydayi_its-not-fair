@@ -86,3 +86,5 @@ going to log in to work tomorrow extra early after fajr to submit my jobs in the
 sleep early wake up early all this weekk
 
 i gotta make the other github acc again sometime today
+
+had good sleep yesterday unlike sunday night dunno what happened
