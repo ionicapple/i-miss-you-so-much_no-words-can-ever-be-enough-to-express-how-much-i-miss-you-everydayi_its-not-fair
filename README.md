@@ -84,3 +84,5 @@ going to log into work a little later, submit some jobs, hopefully the job queue
 going to log in to work tomorrow extra early after fajr to submit my jobs in the server, so gonna sleep early
 
 sleep early wake up early all this weekk
+
+i gotta make the other github acc again sometime today
