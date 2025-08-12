@@ -90,3 +90,7 @@ i gotta make the other github acc again sometime today
 had good sleep yesterday unlike sunday night dunno what happened
 
 the second shipment of the several things i got from erewhon came today and its good stuff, so far, ive liked everything, the coconut macaroons are super soft and not too sweet, pretty good umm still dunno why there isnt one nearby
+
+> SometimesIWonderWhatUTasteSmellLike-WhatUrTongueFeelsLike-IWonderIfUThinkThatAboutMe
+
+if i feel like this about u after 8 yrs, its going in the prenup that i OWN your entire phone, thats it, there will not be a single secret that you will keep from me, i will know everything bc u will tell me everything always, not a single lie you will ever tell me, im not ever going to cry over you unless its tears of joy, im going to know exactly where u will be 24/7, i have a dirty mind but i have a pure heart, i dont lie to people and i work as hard as i can
