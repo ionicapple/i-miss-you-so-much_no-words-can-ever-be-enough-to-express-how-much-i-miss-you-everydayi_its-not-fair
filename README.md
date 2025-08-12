@@ -88,3 +88,5 @@ sleep early wake up early all this weekk
 i gotta make the other github acc again sometime today
 
 had good sleep yesterday unlike sunday night dunno what happened
+
+the second shipment of the several things i got from erewhon came today and its good stuff, so far, ive liked everything, the coconut macaroons are super soft and not too sweet, pretty good umm still dunno why there isnt one nearby
