@@ -82,3 +82,5 @@ oh and i like to look put together when i leave the house, so if youre going any
 going to log into work a little later, submit some jobs, hopefully the job queue is less today
 
 going to log in to work tomorrow extra early after fajr to submit my jobs in the server, so gonna sleep early
+
+sleep early wake up early all this weekk
