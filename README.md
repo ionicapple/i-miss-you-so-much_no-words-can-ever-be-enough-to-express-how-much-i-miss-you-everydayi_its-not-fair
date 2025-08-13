@@ -98,3 +98,7 @@ if i feel like this about u after 8 yrs, its going in the prenup that i OWN your
 read code today in py, perl, R, it is time to log off and do something else ... anything else ... anythinggggg elseeeeeeee at all, im going to take a drive somewhere i need to look at real things and not my monitor for 9+ hrs
 
 im gonna bother u a lot today bc i have no meetings today lol, i have some things to do but throughout the day, there will be memes or something i dunno ... i dunno im just going to bother u the whole day bc i feel like it today lol
+
+>  OhReally-Then-WhyDontYou-ComeOverAndFkMe-HoweverYouLike-ImAnExitAway-IWontTellAnyone
+
+this ... OR ... or ... just hear me out ... you can just sit next to me and hear me vent about why my jobs are still pending on the cluster and i need them to finish by friday or like asap and theyre not running yet 😂🥹🤣
