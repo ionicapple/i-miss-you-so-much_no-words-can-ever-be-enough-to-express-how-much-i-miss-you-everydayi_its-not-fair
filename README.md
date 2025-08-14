@@ -102,3 +102,5 @@ im gonna bother u a lot today bc i have no meetings today lol, i have some thing
 >  OhReally-Then-WhyDontYou-ComeOverAndFkMe-HoweverYouLike-ImAnExitAway-IWontTellAnyone
 
 this ... OR ... or ... just hear me out ... you can just sit next to me and hear me vent about why my jobs are still pending on the cluster and i need them to finish by friday or like asap and theyre not running yet 😂🥹🤣
+
+weird sleep all week
