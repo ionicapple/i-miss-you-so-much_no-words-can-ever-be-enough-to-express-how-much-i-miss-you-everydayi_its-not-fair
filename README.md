@@ -106,3 +106,5 @@ im gonna bother u a lot today bc i have no meetings today lol, i have some thing
 this ... OR ... or ... just hear me out ... you can just sit next to me and hear me vent about why my jobs are still pending on the cluster and i need them to finish by friday or like asap and theyre not running yet 😂🥹🤣
 
 weird sleep all week
+
+no matter what happens in life, never miss namaz, and be good to ur parents, everything else is secondary, that's what ive learned in the past several yrs, theres a lot of evil out there sure but i was protected from so much that could have gone wrong
