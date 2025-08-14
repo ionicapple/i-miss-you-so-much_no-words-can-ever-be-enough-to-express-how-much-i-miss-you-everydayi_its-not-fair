@@ -108,3 +108,5 @@ this ... OR ... or ... just hear me out ... you can just sit next to me and hear
 weird sleep all week
 
 no matter what happens in life, never miss namaz, and be good to ur parents, everything else is secondary, that's what ive learned in the past several yrs, theres a lot of evil out there sure but i was protected from so much that could have gone wrong
+
+im not yapping all day today like yesterday lol, have a few things to do today/tomorrow, i dunno what my parents are doing this weekend tho its too bad they dont like hotpot bc thats what i want
