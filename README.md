@@ -112,3 +112,6 @@ weird sleep all week
 no matter what happens in life, never miss namaz, and be good to ur parents, everything else is secondary, that's what ive learned in the past several yrs, theres a lot of evil out there sure but i was protected from so much that could have gone wrong
 
 im not yapping all day today like yesterday lol, have a few things to do today/tomorrow, i dunno what my parents are doing this weekend tho its too bad they dont like hotpot bc thats what i want
+
+no better feeling than having a script that calls in diff libs from all over the server, that u manually have to write in, work on a friday at 5 pm so that means, i dont have to think about it all weekend
+
