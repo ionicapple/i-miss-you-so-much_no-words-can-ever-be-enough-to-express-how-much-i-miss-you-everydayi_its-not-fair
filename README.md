@@ -115,3 +115,4 @@ im not yapping all day today like yesterday lol, have a few things to do today/t
 
 no better feeling than having a script that calls in diff libs from all over the server, that u manually have to write in, work on a friday at 5 pm so that means, i dont have to think about it all weekend
 
+going to do something with my curling iron today its been awhile since i did something with my hair with it ... i have a vision, its going to work out, maybe some pictures will be taken ... maybe some pictures will be shared lol i dunno depends ...
